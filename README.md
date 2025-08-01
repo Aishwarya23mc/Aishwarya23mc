@@ -44,9 +44,11 @@ I’ve worked on projects ranging from **data analytics and predictive modeling*
 
 ### 📬 Connect with Me  
 - **GitHub:** [Aishwarya23mc](https://github.com/Aishwarya23mc)  
-- **LinkedIn:** *(Add your LinkedIn link here)*  
+- **LinkedIn:** [Rangappa Gari Ishwarya](https://www.linkedin.com/in/rangappa-gari-ishwarya-065211323/)
+---
 
 ---
 
-*"Learning every day to turn ideas into impactful solutions."*
+*"Never let your fear decide your fate."*  
+
 
