@@ -47,8 +47,6 @@ I’ve worked on projects ranging from **data analytics and predictive modeling*
 - **LinkedIn:** [Rangappa Gari Ishwarya](https://www.linkedin.com/in/rangappa-gari-ishwarya-065211323/)
 ---
 
----
-
 *"Never let your fear decide your fate."*  
 
 
